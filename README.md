@@ -1,4 +1,4 @@
 ## Bem vindo ao meu perfil 😃
 
 Meu nome é Ana Luiza.
-gosto de desenhar e comer 🍔
+Gosto de desenhar e comer 🍔
