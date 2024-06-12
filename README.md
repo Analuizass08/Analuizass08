@@ -2,4 +2,4 @@
 
 Meu nome é Ana Luiza.
 
-Gosto de desenhar e comer 🍔
+Gosto de desenhar e comer 🍔💜
